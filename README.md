@@ -1,4 +1,4 @@
 # belajar-kolaborasi
-Naufal  
-Hadi  
-Darmawan  
+Naufall  
+Hadii  
+Darmawann  
